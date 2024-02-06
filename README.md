@@ -1,6 +1,6 @@
 # SpisokHotelok
 
-###### Оружие
+###### Гром-палка
 1) [Комплект Спорт-3](https://zenitco.ru/catalog/tyuning/tsevya/komplekt_sport_3/)
 	Который можно собрать по частям
 	1) [Кронштейн Б-21Л](https://zenitco.ru/catalog/tyuning/tsevya/kronshteyn_b_21l/)
