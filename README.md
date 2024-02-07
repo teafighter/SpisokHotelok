@@ -9,7 +9,7 @@
 3) [Рукоятка Magpul MOE-K2 AK](https://www.ozon.ru/product/rukoyat-pistoletnaya-magpul-moe-k2-ak-grip-dlya-ak-47-ak-74-mag683-902568710)
 4) [Магнифер Vector Optics Maverick-III 3x22](https://www.ozon.ru/product/magnifer-vector-optics-maverick-iii-3x22-magnifier-mil-scmf-31-925640921)
 ###### Для принтера
-1) [Профиль алюминиевый черный](https://promprof.ru/catalog/346/18441/) Нарезанные куски определенной длины.
+1) [Профиль алюминиевый черный](https://promprof.ru/catalog/346/18441/) Нарезанные куски: 550мм х 6, 340мм х 19.
 2) [Нагреватель керамический CHC **12V** kit](https://aliexpress.ru/item/1005002781227348.html) (экспресс доставка - из России, едет быстро)
 ###### Прочее
 1) Сварочный полуавтомат с раздельной регулировкой подачи проволоки и сварочного тока (еще не определился, какой)
