@@ -13,4 +13,4 @@
 2) [Нагреватель керамический CHC **12V** kit](https://aliexpress.ru/item/1005002781227348.html) (экспресс доставка - из России, едет быстро)
 ###### Прочее
 1) Сварочный полуавтомат с раздельной регулировкой подачи проволоки и сварочного тока (еще не определился, какой)
-2) [Стул барабанный](https://www.ozon.ru/product/stul-barabanshchika-motosedlo-i-regulirovkoy-po-vysote-1176485646), например, такой.
+2) Стул барабанный, например, [такой](https://www.ozon.ru/product/stul-barabanshchika-motosedlo-i-regulirovkoy-po-vysote-1176485646).
