@@ -11,7 +11,6 @@
 5) [ДТК Custom Guns Destin](https://line-f.ru/shop/product/40085/dtk-custom-guns-destin-sajga-9tr9/)
 ###### Для принтера
 1) [Профиль алюминиевый черный](https://promprof.ru/catalog/346/18441/) Нарезанные куски: 550мм х 6, 340мм х 19.
-2) [Нагреватель керамический CHC **12V** kit](https://aliexpress.ru/item/1005002781227348.html) (экспресс доставка - из России, едет быстро)
 ###### Прочее
 1) Сварочный полуавтомат с раздельной регулировкой подачи проволоки и сварочного тока (еще не определился, какой)
 2) Стул барабанный, например, [такой](https://www.ozon.ru/product/stul-barabanshchika-motosedlo-i-regulirovkoy-po-vysote-1176485646).
